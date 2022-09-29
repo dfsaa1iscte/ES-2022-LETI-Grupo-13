@@ -1,1 +1,1 @@
-# ES-2022-LETI-Grupo-13.
+# ES-2022-LETI-Grupo-13
